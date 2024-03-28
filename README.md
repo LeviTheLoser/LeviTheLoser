@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @LeviTheLoser
+- 😄 Pronouns: He/They
+- ⚡ Fun fact: Penguins can fly if you throw them hard enough. Just like children!!/j
+- Pronoun.page: https://en.pronouns.page/@LeviTheLoser
